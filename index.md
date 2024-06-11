@@ -2,3 +2,5 @@
 ##ai girl image 2024-06-05, [AI Girl Image Prompt in 2024-06-05](images_2024-06-05.md)
 ##ai girl image 2024-06-06, [AI Girl Image Prompt in 2024-06-06](images_2024-06-06.md)
 ## ai girl image 2024-06-07, [AI Girl Image Prompt in 2024-06-07](images_2024-06-07.md)
+## ai girl image 2024-06-08, [AI Girl Image Prompt in 2024-06-08](images_2024-06-08.md)
+## ai girl image 2024-06-10, [AI Girl Image Prompt in 2024-06-10](images_2024-06-10.md)
