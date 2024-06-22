@@ -12,3 +12,5 @@
 ## ai girl image 2024-06-16, [AI Girl Image Prompt in 2024-06-16](images_2024-06-16.md)
 ## ai girl image 2024-06-17, [AI Girl Image Prompt in 2024-06-17](images_2024-06-17.md)
 ## ai girl image 2024-06-18, [AI Girl Image Prompt in 2024-06-18](images_2024-06-18.md)
+## ai girl image 2024-06-19, [AI Girl Image Prompt in 2024-06-19](images_2024-06-19.md)
+## ai girl image 2024-06-21, [AI Girl Image Prompt in 2024-06-21](images_2024-06-21.md)
